@@ -1,1 +1,0 @@
-# yorcal.github.io
